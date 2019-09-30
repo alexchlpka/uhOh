@@ -7,4 +7,5 @@ Our group members are:
 
 Alex Chlpka (owner)
 
+Duncan Birdsall
 
